@@ -1,4 +1,4 @@
-# Raed Al-Alanazi
+# Raed
 
 Procurement & Operational Excellence Professional  
 Strategic sourcing · TPRM · TCO · SAMA / PDPL
